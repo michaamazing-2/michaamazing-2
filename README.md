@@ -8,11 +8,12 @@
 <p align="center"> $\text{\color{#904dc4} fictive!}$ 　　　 $\text{\color{#dfc7f2}っ⏖}$ 　　　 $\text{\color{#dfc7f2} little}$ 　　 $\text{\color{#dfc7f2}''}$ 　　 $\text{\color{#904dc4} aiwcr}$ 　　　 $\text{\color{#dfc7f2}໒}$ 　　 $\text{\color{#dfc7f2} pls!}$  $\text{\color{#dfc7f2}℘}$
 <p align="center"> $\text{\color{#dfc7f2} ˳𝒢𐑞}$ $\text{\color{#904dc4} sourcemates}$ 　　 $\text{\color{#dfc7f2} 𓈈}$  　　 $\text{\color{#dfc7f2} pls}$ 　　 $\text{\color{#904dc4} int!!!!}$ $\text{\color{#dfc7f2} ✿𓏼}$
 <p align="center"> $\text{\color{#dfc7f2} doubles}$ 　 $\text{\color{#dfc7f2}  ͜͝ | ͜͝  |}$ 　 $\text{\color{#904dc4} dniud}$ 　　 $\text{\color{#dfc7f2} ⿻乀}$ 　　 $\text{\color{#dfc7f2} pls,,.}$
+
+ <p align="center"> <img src="https://media.discordapp.net/attachments/1148999953717399584/1499487954513694740/Tumblr_l_149430506880493.jpg?ex=69f4fa7b&amp;is=69f3a8fb&amp;hm=4e34ca2889e0214e0f16c5164e279dae197ad3ba56e0c56bdb17972b6f838318&amp;=&amp;format=webp" alt="Image"/> 　　　　　　　　　　　　　　　　　　　　　　　　　　 <img src="https://media.discordapp.net/attachments/1148999953717399584/1499487954912018545/Tumblr_l_149434031894606.jpg?ex=69f4fa7b&amp;is=69f3a8fb&amp;hm=67047e109fb11498e0c15feea2be40609daf6d57a9e8aa891fe9f39834d30295&amp;=&amp;format=webp" alt="Image"/>
 <p align="center"> <img src="https://media.discordapp.net/attachments/1148999953717399584/1499494653878210706/397_sin_titulo_20260430123452.png?ex=69f500b8&amp;is=69f3af38&amp;hm=c0f16e437296e4f3b66717a336156fc18c97880f69f3426fa7918c00be592124&amp;=&amp;format=webp&amp;quality=lossless" alt="Image"/>
-[ata](https://chronicalzataa.atabook.org/)
-  
-<p align="center"> <img src="https://media.discordapp.net/attachments/1148999953717399584/1499487954513694740/Tumblr_l_149430506880493.jpg?ex=69f4fa7b&amp;is=69f3a8fb&amp;hm=4e34ca2889e0214e0f16c5164e279dae197ad3ba56e0c56bdb17972b6f838318&amp;=&amp;format=webp" alt="Image"/> 　　　　　　　　　　　　　　　　　　　　　　　　　　 <img src="https://media.discordapp.net/attachments/1148999953717399584/1499487954912018545/Tumblr_l_149434031894606.jpg?ex=69f4fa7b&amp;is=69f3a8fb&amp;hm=67047e109fb11498e0c15feea2be40609daf6d57a9e8aa891fe9f39834d30295&amp;=&amp;format=webp" alt="Image"/>
-  
+<p align="center"> $\text{\color{#dfc7f2} 𓏏 ˳𝒢𐑞 𓎟 }$
+
+   
 <p align="center"> $\text{\color{#dfc7f2} I'm usually offtab! so please, w2i!}$  $\text{\color{#904dc4} like the desc of this account says, hvycudcomf!! PLEASE C*H!! I love that :D}$
 <p align="center"> $\text{\color{#dfc7f2} if im not offtab but not responding it's most likely Im playing Roblox, or simply afk! so please be patient}$
 <p align="center"> $\text{\color{#dfc7f2} SOURCEMATES PLSPLSPLSPLS INT!!!}$
